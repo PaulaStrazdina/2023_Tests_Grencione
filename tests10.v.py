@@ -23,5 +23,5 @@
 #12 Plonis Gustavs
 
 #13 Strazdiņa Paula Marta
-
+6+9
 #14 Vanags Renārs
